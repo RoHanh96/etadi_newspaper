@@ -1,1 +1,0 @@
-# etadi_newspaper
